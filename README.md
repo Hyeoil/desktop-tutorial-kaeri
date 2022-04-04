@@ -3,6 +3,7 @@
 빵형님 안녕하세요!
 
 명강의에요!
+Hyeonil Kim. Thank you so much for your energy.
 
 감사합니다.
 
